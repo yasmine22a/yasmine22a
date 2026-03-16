@@ -1,3 +1,3 @@
 ## Hi there 👋
 Hello! My name is Yasmine.
-I am a first-year Software Engineering student currently studying software and computer engineering 🤍
+I am a first-year Bachelor's student in Software Engineering and Computer Science🤍
